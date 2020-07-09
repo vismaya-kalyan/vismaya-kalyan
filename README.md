@@ -1,5 +1,5 @@
-### Hello 👋
+### Hello 👋 :slightly_smiling_face:
 
-- 📫 How to reach me: vkalyan@hawk.iit.edu
+
 
 
